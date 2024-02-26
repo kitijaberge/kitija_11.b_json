@@ -1,0 +1,2 @@
+Gāja švaki!
+Izpildīju uzdevumus.
